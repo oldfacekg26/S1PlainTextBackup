@@ -1114,3 +1114,18 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。比圣母毛子可不比JRPG圣母大军差
 
 
+
+
+*****
+
+####  Dgnic_  
+##### 81#       发表于 2021-9-14 14:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742863&amp;ptid=2026260" target="_blank">茛菪 发表于 2021-9-14 11:46</a>
+我觉得一代前半还更好玩些，真正的博德1继承者，后面魔法物品+5+8开始稀里哗啦掉就有点不行了。 ...</blockquote>
+那可能是我真的和这个系列不对付了，粗暴的踢门还可以接受，堆怪有点耐不了...
+也可能是我游玩方式不对，类DND玩太少了，不知道一些有趣的技巧，所以打得比较吃力。<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">基本都是在地板放个蛛网或者泥潭把敌人困住围着打，完全想不出来别的方式了...
+要是能有那种老害流程视频就好了，研究看看应该不错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

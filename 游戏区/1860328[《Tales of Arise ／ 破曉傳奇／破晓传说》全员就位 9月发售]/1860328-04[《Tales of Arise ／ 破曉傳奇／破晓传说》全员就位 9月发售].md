@@ -3191,3 +3191,121 @@ steam好评92，差评基本都是DLC 适配等问题，真正关于游戏内容
 skit有漏的怎么补啊<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">游玩记录里显示301但是成就还没跳，篝火也坐不出新的，有点没方向了
 
 
+
+
+*****
+
+####  盖·福克斯  
+##### 4742#       发表于 2021-9-14 14:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744242&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-14 13:59</a>
+
+这次是不是没有巨大BOSS战？那个伊芙利特根本就不能打，只会招杂兵
+
+太差评了！！！不如别做那么大！！！白 ...</blockquote>
+有几个支线里，我记得有个爬塔的，还有个下圣殿的。
+
+但全部都是杂兵+精英怪的战斗。
+
+是的，全部一模一样
+
+
+*****
+
+####  Bani82  
+##### 4743#       发表于 2021-9-14 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744264&amp;ptid=1860328" target="_blank">盖·福克斯 发表于 2021-9-14 14:01</a>
+
+有几个支线里，我记得有个爬塔的，还有个下圣殿的。
+
+但全部都是杂兵+精英怪的战斗。
+
+是的，全部一模一样 ...</blockquote>
+我的意思就是这个，实际只打打兵和精英，巨大场景BOSS实际在场外！
+
+这个真的有点傻，实在是搞不懂这个为什么不做？工期紧到这个程度？
+
+这种设计上来说也不是特别困难，毕竟要求也不高，现有战斗系统完全可以用不觉得需要改太多东西啊
+
+
+*****
+
+####  leystage  
+##### 4744#       发表于 2021-9-14 14:05
+
+
+<blockquote>dbz9643 发表于 2021-9-14 12:18
+xsx版的经常卡死，有人遇到过吗？退了重进才行，每次都丢几分钟的进度太恶心了 ...</blockquote>
+系统界面语言是日语，好像没遇到这种情况，也许是什么技术力不够的 bug…
+
+
+*****
+
+####  kiralzb  
+##### 4745#       发表于 2021-9-14 14:11
+
+
+卫星解决完，进入解谜篇，太长了，这讲故事实在太长了，我看了有一个小时了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+唯一的亮点只有最初的星球形象真相，这点上5个国家都在一片大地上可以说是很取巧了，也有点当年看血源月亮揭秘的感觉，之后就是普通的套路了
+现在到了最终地图，就开始解锁了找新猫头鹰和各种支线，我难道还要飞回去搞吗？也太出戏了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+还有小故事有明显的进度锁，竞技场即使在之前打过了，不推到解谜篇就不会出现，导致在外星基地里感叹挑战胜利，非常出戏，也有后期那四大属性boss，本来应该是第一个打火的，然后会有小故事说剩下几个如何，可之前已经打掉了，最后才打火的话就只能在篝火里补漏了，还有一些没有明显时间线关联的，也得再后来再到某些地方才会触发……
+
+
+*****
+
+####  kiralzb  
+##### 4746#       发表于 2021-9-14 14:15
+
+
+还有不得不说女主不愧有工具人属性，因为她的祖先是究极工具人，诅咒用子孙来传，领先300年的思想为主角团启蒙，还要再祭坛留下衣服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七氷  
+##### 4747#       发表于 2021-9-14 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743318&amp;ptid=1860328" target="_blank">dbz9643 发表于 2021-9-14 12:18</a>
+xsx版的经常卡死，有人遇到过吗？退了重进才行，每次都丢几分钟的进度太恶心了 ...</blockquote>
+我是每次小剧场结束卡死，有一次是按了上键卡死<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莱纳斯  
+##### 4748#       发表于 2021-9-14 14:25
+
+
+ 本帖最后由 莱纳斯 于 2021-9-14 14:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744428&amp;ptid=1860328" target="_blank">kiralzb 发表于 2021-9-14 14:15</a>
+
+还有不得不说女主不愧有工具人属性，因为她的祖先是究极工具人，诅咒用子孙来传，领先300年的思想为主角团 ...</blockquote>
+那么问题来了，女猪这种体质是如何做到300年的传承的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道她爸爸，爷爷，曾爷爷都是杨永信？
+
+
+*****
+
+####  七氷  
+##### 4749#       发表于 2021-9-14 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744249&amp;ptid=1860328" target="_blank">笛普达克范太希 发表于 2021-9-14 14:00</a>
+skit有漏的怎么补啊游玩记录里显示301但是成就还没跳，篝火也坐不出新的，有点没方向了 ...</blockquote>
+篝火可以回忆
+
+
+*****
+
+####  奈奈未喵  
+##### 4750#       发表于 2021-9-14 14:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744565&amp;ptid=1860328" target="_blank">莱纳斯 发表于 2021-9-14 14:25</a>
+那么问题来了，女猪这种体质是如何做到300年的传承的</blockquote>
+看上谁了就给谁戴面具
+
+

@@ -2380,3 +2380,52 @@ Half-Life 2 Remastered ？v社这什么意思</blockquote>
 大概就是光追版吧
 
 
+
+
+*****
+
+####  医生狼多  
+##### 204#       发表于 2021-9-14 14:16
+
+
+老黄:fake news！
+
+英伟达知道有一个未经授权的游戏名单被泄露，其中包含已发售或推测的游戏，但仅用于内部测试。该名单没有确认和宣布任何游戏。
+英伟达立即采取了行动，关闭了该名单的访问权。此名单没有暴露任何游戏的机密或个人信息。<img src="https://p.sda1.dev/2/e74313242fc514b848a6c7db03cee701/1631600179853.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不见不散  
+##### 205#       发表于 2021-9-14 14:26
+
+
+ps护法血源<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  a2042312  
+##### 206#       发表于 2021-9-14 14:27
+
+
+这还需要老黄亲自辟谣么，这里面全是老IP续作和旧作重制，一个未公布的新IP都没有，怎么可能是未来的发售表。
+
+
+*****
+
+####  凶手  
+##### 207#       发表于 2021-9-14 14:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741246&amp;ptid=2026252" target="_blank">darkfall 发表于 2021-9-14 09:57</a>
+
+趁着这里出现了Deus Ex据称是SE舅舅的人跑出来说了一通关于SE， Huge grain of salt，看能对多少吧。上一次 ...</blockquote>
+其他的不说 
+
+ff7remake partii 在 ffxvi 之后非常的合理
+
+

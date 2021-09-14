@@ -3007,3 +3007,115 @@ UFO担当动画过场的前几作里，以上这些地方玩家看到的都是�
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">顺序无所谓，我要的是TOX2，不是TOX
 
 
+
+
+*****
+
+####  dbz9643  
+##### 4727#       发表于 2021-9-14 12:18
+
+
+xsx版的经常卡死，有人遇到过吗？退了重进才行，每次都丢几分钟的进度太恶心了
+
+
+*****
+
+####  红烧肉  
+##### 4728#       发表于 2021-9-14 12:42
+
+
+前期不要打高难度，钱只能说勉强够。
+
+
+到了土国大平原，开启连战系统之后，就可以刷钱了。
+
+
+主要是这一作打怪不掉钱。但是其实把非贩卖的素材拿去卖，还是有不少补益的。
+
+
+角色里最强的就是男主和法师，男主是真的被偏爱……法师强则是系列传统了。
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4729#       发表于 2021-9-14 12:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741886&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-9-14 10:44</a>
+steam好评92，差评基本都是DLC 适配等问题，真正关于游戏内容的差评很少
+
+我就怕制作者不会认识到问题，继 ...</blockquote>
+想太多，除了极个别傻逼案例外制作组比谁都门儿清
+不做/没做好大都是工期和成本限制，或者就是单纯做了取舍
+
+
+*****
+
+####  苇原雪道  
+##### 4730#       发表于 2021-9-14 12:58
+
+
+话说光国这门内克长的贼眉鼠眼的一看就是反派老大233。这也太好猜了
+
+
+
+
+*****
+
+####  苇原雪道  
+##### 4731#       发表于 2021-9-14 13:03
+
+
+话说饰品buff有点太强力了，动不动50%减伤直接没难度了
+
+
+*****
+
+####  squaresfc  
+##### 4732#       发表于 2021-9-14 13:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739580&amp;ptid=1860328" target="_blank">江口夕 发表于 2021-9-14 03:08</a>
+
+男主用到最后就是轰霸斩和魔神剑，除了狼和鸟能轻松挑起来空连其他的真就稳如泰山。一顿操作猛如虎完了不如 ...</blockquote>
+轰霸斩显示2个伤害，其实只有一个伤害，你仔细看下敌人的HP降了多少就知道了。
+
+
+*****
+
+####  奈奈未喵  
+##### 4733#       发表于 2021-9-14 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742356&amp;ptid=1860328" target="_blank">塔奇克马 发表于 2021-9-14 11:13</a>
+草</blockquote>
+面具破坏一半的时候 我给他带粗框眼镜 他架在头上
+然后我又给他带怒目眼镜 一上一下四个框
+
+后来面具彻底碎了 两副眼镜重叠在一起 看起来非常纠结
+
+
+*****
+
+####  奈奈未喵  
+##### 4734#       发表于 2021-9-14 13:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742772&amp;ptid=1860328" target="_blank">センチ 发表于 2021-9-14 11:41</a>
+刚打到地国，目前还算满意，就是PS5读盘还是感觉有点长
+
+网上转一圈怎么感觉都在说DLC</blockquote>
+等她大仇得报之后有对话 不再地狱骑士了
+
+
+*****
+
+####  fuochai  
+##### 4735#       发表于 2021-9-14 13:17
+
+
+我好急 好想去乳洞里钓鱼
+准备合个全加BG获取量的极品饰品给林薇儿 看看能不能逃一手课<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

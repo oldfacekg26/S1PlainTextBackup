@@ -2322,3 +2322,48 @@ cc remaster估计就像现在出的ff1-6
 ----发送自 [vivo V1986A,Android 11](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  wanghui  
+##### 199#       发表于 2021-9-14 13:01
+
+
+索尼是不是有放弃硬件，改行在pc打造游戏平台的打算，这么不遗余力地投入pc平台不是赚快钱这么简单
+
+
+*****
+
+####  wanghui  
+##### 200#       发表于 2021-9-14 13:01
+
+
+索尼是不是有放弃硬件，改行在pc打造游戏平台的打算，这么不遗余力地投入pc平台不是赚快钱这么简单
+
+
+
+
+*****
+
+####  ChrisSnake  
+##### 201#       发表于 2021-9-14 13:21
+
+
+所以血源才是索尼一哥? 真出pc肯定典藏版走起
+
+
+*****
+
+####  ChrisSnake  
+##### 202#       发表于 2021-9-14 13:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737955&amp;ptid=2026252" target="_blank">s32244153 发表于 2021-9-13 22:39</a>
+
+https://gist.github.com/xPaw/6a42aafd3c9d19b3ceab2e90b5a37cd2
+
+这才是真正的大消息吧</blockquote>
+就玻璃渣现在这个孬种样 能把1再续两年就不错了
+
+

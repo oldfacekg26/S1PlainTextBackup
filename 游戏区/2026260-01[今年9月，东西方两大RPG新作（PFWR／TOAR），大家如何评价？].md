@@ -976,3 +976,97 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 而且他是众筹游戏，不用上缴发投资方/发行商，利润全是自己的，首发就已经赚了半个3a的开发成本了
 
 
+
+
+*****
+
+####  ChrisSnake  
+##### 71#       发表于 2021-9-14 13:04
+
+
+就传说那画面技术 怎么大得起来
+
+
+*****
+
+####  kyolanaya  
+##### 72#       发表于 2021-9-14 13:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740742&amp;ptid=2026260" target="_blank">farseer123 发表于 2021-9-14 09:12</a>
+
+二代还有王国管理？ 一代的地图移动速度加海量的怪  以及王国管理让我在60小时烂尾了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">建造东西还有点卡还是有的
+
+
+
+
+*****
+
+####  zzy516232108  
+##### 73#       发表于 2021-9-14 13:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最近玩了拥王者，被大地图旅行和王国管理搞得头大……
+
+
+*****
+
+####  pf67  
+##### 74#       发表于 2021-9-14 13:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737579&amp;ptid=2026260" target="_blank">xbhuang 发表于 2021-9-13 22:01</a>
+
+这两群体除了玩的游戏类型有三个字母一样，有重合点？
+
+
+—— 来自 S1Fun</blockquote>
+都是RPG，我同时都在玩，为啥没有重合点？这三个字母就是最大的重合点
+
+
+*****
+
+####  windtrack  
+##### 75#       发表于 2021-9-14 13:19
+
+
+正义之怒狐狸和小烬这俩队友太逗了，一个谐星一个谜语人专怼NPC
+
+
+相比之下乐子人岱蓝都没存在感了
+
+
+*****
+
+####  pf67  
+##### 76#       发表于 2021-9-14 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737850&amp;ptid=2026260" target="_blank">盖·福克斯 发表于 2021-9-13 22:28</a>
+
+别了，CRPG连选择杀掉当二五仔的队友都只是守序中立。
+
+JRPG哪怕杀人狂都逼你原谅。
+
+别比了，真的。 ...</blockquote>
+要这么说CRPG里吹上天的美女都是个大妈脸
+
+JRPG里抓个路人都是美少女
+
+
+抓着一个点踩一捧一，没必要，真的
+
+
+*****
+
+####  pf67  
+##### 77#       发表于 2021-9-14 13:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738640&amp;ptid=2026260" target="_blank">Lunamos 发表于 2021-9-13 23:55</a>
+
+是的，如今的CRPG像墓碑前的铃兰，JRPG像繁花下的枯骨。很多人眼中的庸作八方旅人能卖200万，百英雄传宣 ...</blockquote>
+JRPG正统在同人
+
+

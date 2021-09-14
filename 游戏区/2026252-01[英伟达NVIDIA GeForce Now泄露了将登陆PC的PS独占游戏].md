@@ -2470,3 +2470,105 @@ ff7remake partii 在 ffxvi 之后非常的合理
 这要是真的那感觉PCMR真是赢麻了，有点暗爽啊
 
 
+
+
+*****
+
+####  kuker53  
+##### 211#       发表于 2021-9-14 14:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744838&amp;ptid=2026252" target="_blank">你好s1 发表于 2021-9-14 14:50</a>
+
+兄弟，粗大事了，英伟达确认名单是真的，关闭了名单的访问权限，只说是游戏仅供内部测试，不代表宣布 ...</blockquote>
+你是怎么理解的，那堆看着都没立项的游戏英伟达能测试个p.. 
+
+
+*****
+
+####  你好s1  
+##### 212#       发表于 2021-9-14 14:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744880&amp;ptid=2026252" target="_blank">kuker53 发表于 2021-9-14 14:54</a>
+
+你是怎么理解的，那堆看着都没立项的游戏英伟达能测试个p..</blockquote>
+
+  那它为啥把访问权限关闭了呀，本来大家都以为是纯扯淡的，这下起码说明是英伟达在扯淡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuker53  
+##### 213#       发表于 2021-9-14 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744902&amp;ptid=2026252" target="_blank">你好s1 发表于 2021-9-14 14:56</a>
+
+那它为啥把访问权限关闭了呀，本来大家都以为是纯扯淡的，这下起码说明是英伟达在扯淡 ...</blockquote>
+人家内网，不关了还开着给别人进啊，我服了你的理解能力
+
+
+*****
+
+####  frankCC  
+##### 214#       发表于 2021-9-14 14:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744880&amp;ptid=2026252" target="_blank">kuker53 发表于 2021-9-14 14:54</a>
+你是怎么理解的，那堆看着都没立项的游戏英伟达能测试个p..</blockquote>
+内部测试能测出和卡普空内部同样的怪猎代号，我觉得卡普空不但要查黑客，还要查下有没有老黄内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuker53  
+##### 215#       发表于 2021-9-14 15:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744946&amp;ptid=2026252" target="_blank">frankCC 发表于 2021-9-14 14:59</a>
+
+内部测试能测出和卡普空内部同样的怪猎代号，我觉得卡普空不但要查黑客，还要查下有没有老黄内鬼 ...</blockquote>
+肯定是也看了卡普空的泄露了，他这表上很多推测准不准的都很明显也关注游戏圈很多旧ip
+
+
+*****
+
+####  你好s1  
+##### 216#       发表于 2021-9-14 15:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744923&amp;ptid=2026252" target="_blank">kuker53 发表于 2021-9-14 14:58</a>
+
+人家内网，不关了还开着给别人进啊，我服了你的理解能力</blockquote>
+
+    兄弟，我们来捋一下
+
+
+   本来这条新闻是一个莫名其妙的网友发了一个谁也不信的新闻
+
+
+    现在变成了，英伟达证实网友泄露的名单确实是英伟达自己内部的，只是英伟达说这个名单是英伟达瞎写的，跟游戏没关系。而且英伟达关闭了获得这个名单的通道
+
+
+   一个谁也不信的新闻来源，变成了英伟达的新闻来源  那当然是变得更可信了啊
+
+
+      而且假如真有这些游戏，英伟达搞不好会被这些公司告泄露商业机密啊，当然否认啊，能承认吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuker53  
+##### 217#       发表于 2021-9-14 15:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745021&amp;ptid=2026252" target="_blank">你好s1 发表于 2021-9-14 15:06</a>
+
+兄弟，我们来捋一下
+
+
+   本来这条新闻是一个莫名其妙的网友发了一个谁也不信的新闻</blockquote>
+服了，挖出来的哥们本来就已经证明这些是英伟达内部云游戏上列表的对东西，视频都有怎么进 后来英伟达就把内网关了，不信是这列表太离谱，英伟达现在出说是来辟谣是已发售的游戏和对老游戏续作的推测，我觉得这楼里都没第二个和你想一块的 真的离谱
+
+

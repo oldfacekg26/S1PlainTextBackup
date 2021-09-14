@@ -1129,3 +1129,38 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 要是能有那种老害流程视频就好了，研究看看应该不错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  米村正二  
+##### 82#       发表于 2021-9-14 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742961&amp;ptid=2026260" target="_blank">Elevation 发表于 2021-9-14 11:52</a>
+兰恩其实已经是美颜过了……原版模组里的插图整个脑袋就是个伞蜥
+
+ ...</blockquote>
+原模组是战蜥人，不是变种人，自然是个蜥蜴脑袋。
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  zplbc  
+##### 83#       发表于 2021-9-14 14:49
+
+
+都很好玩，爽到
+
+
+*****
+
+####  Eric_方歌阙  
+##### 84#       发表于 2021-9-14 14:56
+
+
+喷了，破晓传说玩到中盘，这啥剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，放JRPG里也是一等一的迷惑
+
+

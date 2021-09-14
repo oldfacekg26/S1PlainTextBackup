@@ -2646,3 +2646,27 @@ Windows central的jez说可能是真的，因为微软的几个“代号”游�
 到时候pc比PS5快就搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Chia  
+##### 225#       发表于 2021-9-14 16:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745772&amp;ptid=2026252" target="_blank">404489039 发表于 2021-9-14 16:07</a>
+
+到时候pc比PS5快就搞笑了</blockquote>
+没啥奇怪的，Nvidia铁内鬼了
+
+
+之前的
+
+“为PS5量身定做”活用ssd的虚幻5demo，跑不过2080笔记本。
+
+也是N的技术人员无意间透露的
+
+
+需要的话到时候人为制造点技术卡顿就行了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

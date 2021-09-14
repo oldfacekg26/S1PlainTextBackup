@@ -3377,3 +3377,35 @@ pay小一岁，那大概是明年毕业，但接下来几个月有好多live。�
 这翻译是加了私货吗还是说翻的挺准确</blockquote>
 
 
+
+
+*****
+
+####  优妮可  
+##### 4769#       发表于 2021-9-14 16:11
+
+
+<img src="https://img.saraba1st.com/forum/202109/14/161139og1d8dk1g1s1ga8g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210914_161131.jpg</strong> (81.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 16:11 上传
+
+
+笑死，外国人比较贵
+
+
+*****
+
+####  AlfredXC  
+##### 4770#       发表于 2021-9-14 16:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745810&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-14 16:11</a>
+笑死，外国人比较贵</blockquote>
+加农：我怕是个假混血
+
+

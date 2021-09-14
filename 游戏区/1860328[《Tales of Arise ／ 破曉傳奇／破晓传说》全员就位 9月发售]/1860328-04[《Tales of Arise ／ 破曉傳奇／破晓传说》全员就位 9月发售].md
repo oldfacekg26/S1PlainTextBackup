@@ -3154,3 +3154,40 @@ steam好评92，差评基本都是DLC 适配等问题，真正关于游戏内容
 原来饰品还有效果啊 我都没发现<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  oniwarud  
+##### 4739#       发表于 2021-9-14 13:43
+
+
+<blockquote>alucardcz 发表于 2021-9-14 13:21
+这些人是不是没通关  我刚打完第1个boss的时候心里也是好评的。。。打完第2个城市评价已经跌了1半 ...</blockquote>
+一半的人现在连第二个领将都没过吧
+
+
+*****
+
+####  Bani82  
+##### 4740#       发表于 2021-9-14 13:59
+
+
+这次是不是没有巨大BOSS战？那个伊芙利特根本就不能打，只会招杂兵
+
+太差评了！！！不如别做那么大！！！白期待了
+
+不过记忆里是不是传说就没有过那种巨大场景BOSS战？
+
+
+
+
+*****
+
+####  笛普达克范太希  
+##### 4741#       发表于 2021-9-14 14:00
+
+
+skit有漏的怎么补啊<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">游玩记录里显示301但是成就还没跳，篝火也坐不出新的，有点没方向了
+
+

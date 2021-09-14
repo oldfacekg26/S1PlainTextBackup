@@ -1103,3 +1103,14 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
+
+
+*****
+
+####  秋月孝三  
+##### 80#       发表于 2021-9-14 14:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。比圣母毛子可不比JRPG圣母大军差
+
+

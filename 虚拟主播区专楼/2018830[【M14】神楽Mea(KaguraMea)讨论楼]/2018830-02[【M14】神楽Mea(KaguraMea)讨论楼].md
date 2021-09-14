@@ -13177,3 +13177,19 @@ mua，<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" refe
 没说，说的睡醒了播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Cortana  
+##### 2685#       发表于 2021-9-14 15:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738561&amp;ptid=2018830" target="_blank">Mr.shelter 发表于 2021-9-13 23:45</a>
+
+咩
+
+（转群，原图是aut桑画的）</blockquote>
+我超，扯旗了！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+

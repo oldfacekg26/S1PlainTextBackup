@@ -2597,3 +2597,52 @@ ff7remake partii 在 ffxvi 之后非常的合理
 https://gist.github.com/xPaw/6a42aafd3c9d19b3ceab2e90b5a37cd2
 
 
+
+
+*****
+
+####  IcarusInFire  
+##### 220#       发表于 2021-9-14 15:50
+
+
+Windows central的jez说可能是真的，因为微软的几个“代号”游戏他知道更多信息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Papercup  
+##### 221#       发表于 2021-9-14 15:51
+
+
+太假了以至于我觉得是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  有口皆悲  
+##### 222#       发表于 2021-9-14 15:58
+
+
+英伟达暗示：钱留着买我家的显卡，不要买amd显卡的ps5！
+
+
+*****
+
+####  医生狼多  
+##### 223#       发表于 2021-9-14 16:05
+
+
+看那个列表，找到一堆se的手游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  404489039  
+##### 224#       发表于 2021-9-14 16:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737239&amp;ptid=2026252" target="_blank">UmarIbnLaAhad 发表于 2021-9-13 21:32</a>
+瑞奇与叮当不是sssssd才能做出来的游戏吗，有double think可看了</blockquote>
+到时候pc比PS5快就搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

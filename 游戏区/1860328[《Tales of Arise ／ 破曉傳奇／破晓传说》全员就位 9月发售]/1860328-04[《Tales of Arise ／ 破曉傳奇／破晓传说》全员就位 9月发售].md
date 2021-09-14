@@ -2954,3 +2954,56 @@ UFO担当动画过场的前几作里，以上这些地方玩家看到的都是�
 与其让2D动画过场变成例行公事，不如全部做成3D，或者重新思考一下这方面的处理
 
 
+
+
+*****
+
+####  LMBS  
+##### 4723#       发表于 2021-9-14 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742895&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-14 11:48</a>
+说下这次2D动画的问题
+
+我觉得这次2D动画评价不佳有个原因是动画人设在游戏内的存在感很低（甚至于玩家其实 ...</blockquote>
+未公布OP我就觉得该去掉2d过场了，特别是这次UFO做得跟TOGF差不多，把这钱花在OP和优化建模动画不好吗？
+花多点钱只做两个加起来三四分钟的OP，就算没时间应该还是能做好的。
+
+
+*****
+
+####  rgauss  
+##### 4724#       发表于 2021-9-14 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742391&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-14 11:15</a>
+能把togf和tox2中文化搬到PC，富泽就算完成使命了，之后他们想搞tales of god eater都无所谓了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不先搬tox上来不可能搬tox2吧
+
+
+*****
+
+####  猫将军  
+##### 4725#       发表于 2021-9-14 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741972&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-14 10:49</a>
+好评里面能看到有对战斗体验的看法的
+
+
+又去看了下日亚，用户评分不算高，4.1，系列里算中段</blockquote>
+日亚4.1里看看有多少好评的是发售前期待的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laoz  
+##### 4726#       发表于 2021-9-14 12:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743166&amp;ptid=1860328" target="_blank">rgauss 发表于 2021-9-14 12:04</a>
+
+不先搬tox上来不可能搬tox2吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">顺序无所谓，我要的是TOX2，不是TOX
+
+

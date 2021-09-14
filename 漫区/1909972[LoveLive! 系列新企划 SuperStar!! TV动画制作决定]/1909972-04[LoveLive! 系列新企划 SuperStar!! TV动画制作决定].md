@@ -3216,3 +3216,44 @@ Staff明显是要扶加农立德的，即便她拉垮，可可比她更适合，
 星团和考哥的对谈因日期过于敏感被贴吧删了还行
 
 
+
+
+*****
+
+####  player3960  
+##### 4756#       发表于 2021-9-14 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742647&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-14 11:33</a>
+
+我也觉得，这集就做成前两集那样互相吃瘪互相吐槽观感都不至于像现在这样差，而且吃完瘪还没人安慰更是惨 ...</blockquote>
+可可扶香没得逞不也是一种吃瘪吗，这集戏里戏外大家都是输家<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4757#       发表于 2021-9-14 11:50
+
+
+ 本帖最后由 lj205 于 2021-9-14 11:51 编辑 
+
+可可也就传统回国追飞机桥段吧？能整出什么幺蛾子？
+
+加农的自发性最后肯定也是要可可带起来的
+
+
+*****
+
+####  player3960  
+##### 4758#       发表于 2021-9-14 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742925&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-14 11:50</a>
+
+可可也就传统回国追飞机桥段吧？能整出什么幺蛾子？</blockquote>
+之前还觉得你们都在奶追飞机是不是有点太草率，这次应该来点不一样的吧？
+
+结果这废校一出，感觉没悬念了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

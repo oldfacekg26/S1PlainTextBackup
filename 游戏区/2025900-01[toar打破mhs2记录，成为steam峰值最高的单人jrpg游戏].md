@@ -1313,3 +1313,44 @@ P4G在20年时还有这个卖相才是震惊我，我12年在宝石V上想重温
 阿周那那种和平的统治也就只有阿周那根本不在意目的才做得到
 
 
+
+
+*****
+
+####  black  
+##### 109#       发表于 2021-9-14 11:54
+
+
+我对破晓很满意，反正只要卖的好就万事大吉，傻吊网友放再多黑屁也不会影响到男猛攻
+
+
+*****
+
+####  peh  
+##### 110#       发表于 2021-9-14 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733635&amp;ptid=2025900" target="_blank">战狼PTSD 发表于 2021-9-13 15:56</a>
+
+开局看到科技都能飞天了还要招奴隶打工还要配看守，就已经有点接受不了了
+
+而且这代不知道为啥背景 ...</blockquote>
+这个第一章解释星灵力的时候不就解释了吗
+
+相比之下高科技城中村更尴尬一点倒是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LMBS  
+##### 111#       发表于 2021-9-14 12:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743029&amp;ptid=2025900" target="_blank">peh 发表于 2021-9-14 11:56</a>
+这个第一章解释星灵力的时候不就解释了吗
+
+相比之下高科技城中村更尴尬一点倒是 ...</blockquote>
+地图方面我对这方面最不满，两条村之前只有两段小过道可以脑补中间省略掉。可是村子就看到的这么大就很难补了，房屋都没几间。明明以前都能做到
+<img src="https://p.sda1.dev/2/10a90ca7aee96bf114495d1ea4228753/IMG_CMP_136004872.jpeg" referrerpolicy="no-referrer">
+
+

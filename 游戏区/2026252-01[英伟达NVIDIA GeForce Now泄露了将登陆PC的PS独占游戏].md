@@ -2429,3 +2429,44 @@ ps护法血源<img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 ff7remake partii 在 ffxvi 之后非常的合理
 
 
+
+
+*****
+
+####  masterzx  
+##### 208#       发表于 2021-9-14 14:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744588&amp;ptid=2026252" target="_blank">a2042312 发表于 2021-9-14 14:27</a>
+
+这还需要老黄亲自辟谣么，这里面全是老IP续作和旧作重制，一个未公布的新IP都没有，怎么可能是未来的发售表 ...</blockquote>
+有各种project xxx的，虽然应该全部都是没边的企划，但也不至于连名字都是老黄自己编的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+当然SE舅舅那是纯粹来捣乱了
+
+
+*****
+
+####  你好s1  
+##### 209#       发表于 2021-9-14 14:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741368&amp;ptid=2026252" target="_blank">Lamas 发表于 2021-9-14 10:07</a>
+
+能信这个的我只能😅</blockquote>
+   兄弟，粗大事了，英伟达确认名单是真的，关闭了名单的访问权限，只说是游戏仅供内部测试，不代表宣布了什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+  
+
+
+*****
+
+####  mlfans  
+##### 210#       发表于 2021-9-14 14:50
+
+
+这要是真的那感觉PCMR真是赢麻了，有点暗爽啊
+
+

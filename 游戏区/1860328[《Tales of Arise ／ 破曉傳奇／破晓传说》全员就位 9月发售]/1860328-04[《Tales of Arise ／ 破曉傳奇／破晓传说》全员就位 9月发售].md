@@ -3309,3 +3309,57 @@ skit有漏的怎么补啊游玩记录里显示301但是成就还没跳，篝火�
 看上谁了就给谁戴面具
 
 
+
+
+*****
+
+####  喵喵叫的猫  
+##### 4751#       发表于 2021-9-14 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744249&amp;ptid=1860328" target="_blank">笛普达克范太希 发表于 2021-9-14 14:00</a>
+skit有漏的怎么补啊游玩记录里显示301但是成就还没跳，篝火也坐不出新的，有点没方向了 ...</blockquote>
+篝火里面翻翻看有没有带绿色小箭头的 这个是之前错过的在统计里算已观看但没算在奖杯追踪里
+竞技场每个人和团体最高级都会有新的
+
+
+*****
+
+####  rak1  
+##### 4752#       发表于 2021-9-14 14:29
+
+
+这个圣坛没地图也不可逃跑/传送？进来时也没个提示，体验极差
+
+
+*****
+
+####  kiralzb  
+##### 4753#       发表于 2021-9-14 14:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744565&amp;ptid=1860328" target="_blank">莱纳斯 发表于 2021-9-14 14:25</a>
+那么问题来了，女猪这种体质是如何做到300年的传承的难道她爸爸，爷爷，曾爷爷都是杨永信？ ...</blockquote>
+似乎就女主这代有明显的外泄吧，也没说全家都被捉去研究，应该只有她小时候就显现了，而且巫女的身份也没有传承下来，这祖先明明还想一代代寄托希望的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夜_乌鸦  
+##### 4754#       发表于 2021-9-14 14:41
+
+
+刚到xxx湿地，现在32级，感觉打怪有点吃力了，是不是该练练级<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fuochai  
+##### 4755#       发表于 2021-9-14 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744748&amp;ptid=1860328" target="_blank">夜_乌鸦 发表于 2021-9-14 14:41</a>
+刚到xxx湿地，现在32级，感觉打怪有点吃力了，是不是该练练级</blockquote>
+城里刷 士兵又菜经验又多 还掉很多钱
+
+

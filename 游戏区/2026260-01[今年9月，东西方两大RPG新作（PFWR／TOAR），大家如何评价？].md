@@ -1070,3 +1070,36 @@ JRPG里抓个路人都是美少女
 JRPG正统在同人
 
 
+
+
+*****
+
+####  盖·福克斯  
+##### 78#       发表于 2021-9-14 13:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743953&amp;ptid=2026260" target="_blank">pf67 发表于 2021-9-14 13:26</a>
+
+要这么说CRPG里吹上天的美女都是个大妈脸
+
+JRPG里抓个路人都是美少女</blockquote>
+我十分同意你的观点，CRPG的女角色确实好看不多。
+
+踩一捧一确实不好，但我不认为我是在踩一捧一，只是在说一个客观事实罢了。
+
+这就是我这段时间连续打了拥王者和破晓传说后最直观的感受。
+
+
+*****
+
+####  古代人皮克  
+##### 79#       发表于 2021-9-14 13:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742747&amp;ptid=2026260" target="_blank">茛菪 发表于 2021-9-14 11:39</a>
+Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说直男那边又能泡大小姐又能泡女王的，直女怎么就给 ...</blockquote>
+直女可以找代兰啊 剧情超甜
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+

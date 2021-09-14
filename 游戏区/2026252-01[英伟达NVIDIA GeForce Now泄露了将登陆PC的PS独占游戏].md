@@ -2367,3 +2367,16 @@ https://gist.github.com/xPaw/6a42aafd3c9d19b3ceab2e90b5a37cd2
 就玻璃渣现在这个孬种样 能把1再续两年就不错了
 
 
+
+
+*****
+
+####  有钱多买小人  
+##### 203#       发表于 2021-9-14 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737338&amp;ptid=2026252" target="_blank">科本学士 发表于 2021-9-13 21:39</a>
+Half-Life 2 Remastered ？v社这什么意思</blockquote>
+大概就是光追版吧
+
+

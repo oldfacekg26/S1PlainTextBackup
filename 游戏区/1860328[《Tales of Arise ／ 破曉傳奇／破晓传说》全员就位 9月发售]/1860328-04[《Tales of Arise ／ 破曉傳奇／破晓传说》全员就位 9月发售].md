@@ -3119,3 +3119,38 @@ steam好评92，差评基本都是DLC 适配等问题，真正关于游戏内容
 准备合个全加BG获取量的极品饰品给林薇儿 看看能不能逃一手课<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 4736#       发表于 2021-9-14 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741886&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-9-14 10:44</a>
+
+steam好评92，差评基本都是DLC 适配等问题，真正关于游戏内容的差评很少
+
+我就怕制作者不会认识到问题，继 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些人是不是没通关  我刚打完第1个boss的时候心里也是好评的。。。打完第2个城市评价已经跌了1半了。。。。。 本来指望后面评价能回升 不过看你们的讨论估计升不回来了
+
+
+*****
+
+####  不应  
+##### 4737#       发表于 2021-9-14 13:34
+
+
+我打到第五章法师妹还是在嘴臭，黑皮依旧自闭，女主还是傲的阶段。也就小弟和盾姐好点。
+奥尔芬:队伍不好带<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lelouchwang  
+##### 4738#       发表于 2021-9-14 13:40
+
+
+原来饰品还有效果啊 我都没发现<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+

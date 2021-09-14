@@ -3398,3 +3398,60 @@ skit有漏的怎么补啊游玩记录里显示301但是成就还没跳，篝火�
 打到弱点会显示两次伤害，但弱点伤害和本体伤害是分开的，所以实际上只有一次
 
 
+
+
+*****
+
+####  喵喵叫的猫  
+##### 4759#       发表于 2021-9-14 15:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745032&amp;ptid=1860328" target="_blank">不应 发表于 2021-9-14 15:07</a>
+
+篝火的羁绊要怎么刷，我第一天篝火看到四个箭头，第二天接着坐篝火就没箭头了 ...</blockquote>
+游戏里现实时间过1个小时
+
+
+另外有的羁绊对话是会随着剧情解锁的 没到特定剧情 等再久也不会出
+
+
+*****
+
+####  hummysiren  
+##### 4760#       发表于 2021-9-14 15:26
+
+
+第四章开头到组织基地，开头的战斗过场和到基地里的对话，感觉剧情终于让人wkwk了起来，难以想象之后会一路拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  古留  
+##### 4761#       发表于 2021-9-14 15:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739509&amp;ptid=1860328" target="_blank">JudgmentEye 发表于 2021-9-14 02:32</a>
+
+奥义</blockquote>
+不对吧，我看好多技能都有方框
+
+都算奥义吗？
+
+怎么定义的？领悟出来的就是奥义么？
+
+
+*****
+
+####  makar0601  
+##### 4762#       发表于 2021-9-14 15:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745249&amp;ptid=1860328" target="_blank">hummysiren 发表于 2021-9-14 15:26</a>
+第四章开头到组织基地，开头的战斗过场和到基地里的对话，感觉剧情终于让人wkwk了起来，难以想象之后会一路 ...</blockquote>
+很快就到名场面
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -1164,3 +1164,24 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 喷了，破晓传说玩到中盘，这啥剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，放JRPG里也是一等一的迷惑
 
 
+
+
+*****
+
+####  chaoswing  
+##### 85#       发表于 2021-9-14 15:09
+
+
+刚好也是两个都玩了但是都没通，正义之怒是真好玩，不过bug也是真的多，所以放下去先玩toar
+Toar卖相挺好的，不管是对比自己的传说系列还是对比这两年的jrpg都是上乘之作，不过我可能是过了那个年纪了，剧情和演出都看着尴尬
+
+
+*****
+
+####  月海的秋鸟  
+##### 86#       发表于 2021-9-14 15:15
+
+
+上周末玩了两小时TOAR和快20小时正义之怒<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+

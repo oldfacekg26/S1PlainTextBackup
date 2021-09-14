@@ -3363,3 +3363,38 @@ skit有漏的怎么补啊游玩记录里显示301但是成就还没跳，篝火�
 城里刷 士兵又菜经验又多 还掉很多钱
 
 
+
+
+*****
+
+####  不应  
+##### 4756#       发表于 2021-9-14 15:07
+
+
+篝火的羁绊要怎么刷，我第一天篝火看到四个箭头，第二天接着坐篝火就没箭头了
+
+
+*****
+
+####  江口夕  
+##### 4757#       发表于 2021-9-14 15:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743775&amp;ptid=1860328" target="_blank">squaresfc 发表于 2021-9-14 13:04</a>
+
+轰霸斩显示2个伤害，其实只有一个伤害，你仔细看下敌人的HP降了多少就知道了。 ...</blockquote>
+我之前有注意过没啥问题啊，你确定只有1次？
+
+
+*****
+
+####  索田八公  
+##### 4758#       发表于 2021-9-14 15:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745074&amp;ptid=1860328" target="_blank">江口夕 发表于 2021-9-14 15:11</a>
+
+我之前有注意过没啥问题啊，你确定只有1次？</blockquote>
+打到弱点会显示两次伤害，但弱点伤害和本体伤害是分开的，所以实际上只有一次
+
+

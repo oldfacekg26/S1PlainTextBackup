@@ -3257,3 +3257,63 @@ Staff明显是要扶加农立德的，即便她拉垮，可可比她更适合，
 结果这废校一出，感觉没悬念了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 4759#       发表于 2021-9-14 12:07
+
+
+佩佩是不是高三了？看她又在战世界史和地理，团里两个高学历大姐姐赶紧带带孩子啊~~~~
+
+
+*****
+
+####  优妮可  
+##### 4760#       发表于 2021-9-14 12:10
+
+
+<img src="https://img.saraba1st.com/forum/202109/14/120921rkhzcfks5cskhok0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210914_120827.jpg</strong> (14.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 12:09 上传
+
+
+二十碗粉了
+
+
+*****
+
+####  CharlieZ-  
+##### 4761#       发表于 2021-9-14 12:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740696&amp;ptid=1909972" target="_blank">cqc1021 发表于 2021-9-14 09:07</a>
+
+台蛙的翻译</blockquote>
+这翻译是加了私货吗还是说翻的挺准确？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 4762#       发表于 2021-9-14 12:26
+
+
+当偶像这么忙，pay真的还有时间学习吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她应该也不考大学吧
+
+
+*****
+
+####  优妮可  
+##### 4763#       发表于 2021-9-14 12:32
+
+
+那边高中一般什么时候毕业
+
+

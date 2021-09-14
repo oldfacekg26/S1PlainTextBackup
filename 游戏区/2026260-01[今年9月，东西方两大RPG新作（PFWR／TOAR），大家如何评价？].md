@@ -917,3 +917,62 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 我觉得一代前半还更好玩些，真正的博德1继承者，后面魔法物品+5+8开始稀里哗啦掉就有点不行了。
 
 
+
+
+*****
+
+####  Elevation  
+##### 67#       发表于 2021-9-14 11:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742747&amp;ptid=2026260" target="_blank">茛菪 发表于 2021-9-14 11:39</a>
+
+Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说直男那边又能泡大小姐又能泡女王的，直女怎么就给 ...</blockquote>
+兰恩其实已经是美颜过了……原版模组里的插图整个脑袋就是个伞蜥
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qty  
+##### 68#       发表于 2021-9-14 11:58
+
+
+<blockquote>nukejoker 发表于 2021-9-14 11:28
+贴吧里说得25W销量没算众筹的吧。
+
+
+而且制作组说了拥王者1就是长卖型，最后收入很令人满意的。
+</blockquote>
+这种游戏主机版卖不出多少去吧
+
+
+*****
+
+####  mahoraga  
+##### 69#       发表于 2021-9-14 11:59
+
+
+<blockquote>茛菪 发表于 2021-9-14 11:39
+Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说直男那边又能泡大小姐又能泡女王的，直女怎么就给 ...</blockquote>
+兰恩除了颜值以外（人脸那边其实也还好）性格为人都挺不错的吧。倒是女王大小姐多少都有性格问题，想想还是泡魅魔正常点
+
+
+*****
+
+####  dumplingpro  
+##### 70#       发表于 2021-9-14 12:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742571&amp;ptid=2026260" target="_blank">nukejoker 发表于 2021-9-14 11:28</a>
+
+贴吧里说得25W销量没算众筹的吧。
+
+
+而且制作组说了拥王者1就是长卖型，最后收入很令人满意的。</blockquote>
+众筹+官网预售key代替了预售，小几十万一首周已经很强了，百万首周的游戏并不多，大都是大规模砸宣发的3a。
+
+
+而且他是众筹游戏，不用上缴发投资方/发行商，利润全是自己的，首发就已经赚了半个3a的开发成本了
+
+

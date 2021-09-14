@@ -1354,3 +1354,19 @@ P4G在20年时还有这个卖相才是震惊我，我12年在宝石V上想重温
 <img src="https://p.sda1.dev/2/10a90ca7aee96bf114495d1ea4228753/IMG_CMP_136004872.jpeg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  战狼PTSD  
+##### 112#       发表于 2021-9-14 12:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742845&amp;ptid=2025900" target="_blank">jhjy217 发表于 2021-9-14 11:45</a>
+
+这个后面有解释的，逻辑是通的，甚至采取爆政的逻辑也是通的
+
+阿周那那种和平的统治也就只有阿周那根本不 ...</blockquote>
+原来如此，我只打了2个小时，过两天再继续
+
+
